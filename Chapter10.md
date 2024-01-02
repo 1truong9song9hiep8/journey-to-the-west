@@ -6,6 +6,8 @@ The two of them were scholars (học giả) who had passed no official examimati
 
 "Brother Ly": said Zhang Shao, "in my opinion those who live for fame will lose their lives on account of fame/ theo tôi những người sống vì danh tiếng sẽ mất mạng vì danh tiếng/ on account of = bởi/vì", those who live in quest(săn lùng) will perish (diệt vong) because of richse (sự giàu có) (tạm dịch: những người hay săn đuổi sự giàu có sẽ chết vì liều mình), those who `had title có danh hiệu` `sleep embracing tiger- ngủ với hổ` (tạm dịch: ý nói những người chơi với vua- chơi với vua như chơi với hổ vậy), and those who recieved an official favors`nhận ân huệ từ quan lại` walk with snake in their sleeves`(tay áo)`.`tạm dịch: những người mang ơn từ quan không khác gì có rắn trong tay áo`, When you think it, Their live cannot compare with our carefee(không bận tâm) existense`sự tồn tại`, close to the blue mountain and fair water(nước trong), we chershi (trân quý) poverty(sự nghèo khó) and pass our days without having no quarrel(tranh cãi) with fate (không trách số phận).
 
-"Brother Zhang" said Li Ding, "There's a great deal of truth in what you say"
+"Brother Zhang" said Li Ding, "There's a great deal of truth in what you say, But your fair waters cannot match my blue mountaints".
+
+"On the contrary," said Zhang Shao, "Your blue mountaints cannot match my fair water, in testymony`(để chứng thực)` of which I offer a lyric to the tune of "Buffterfile Enamored of Flowers' that says `tôi xin đưa ra lời bài hát có nội dung sau`:""
 
 
