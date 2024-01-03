@@ -24,8 +24,20 @@ The two of them were scholars (học giả) who had passed no official examimati
   Li Ding said, "Your fair waters not as good as my blue mountains. I also have as testimony a lyric poem to the tune of "Butterfile Enamored of Flowers" that say:
   
   *At a dense forest(rừng rậm)'s pine-seeded corner/ tại một góc rừng thông rậm rạp*<br>"
-  "I hear, wordless, the oriole<>br"
-  
+  At a dense forest‟s pine-seeded corner 
+I hear, wordless, the oriole— 
+Its deft tongue‟s a tuneful pipe. 
+Pale reds and bright greens announce the warmth of spring; 
+Summer comes abruptly; so passes time. 
+Then autumn arrives (for it‟s an easy change) 
+With fragrant golden flowers 
+Most worthy of our joy; 
+And cold winter descends, swift as a finger snaps. 
+Ruled by no one, I‟m free in all four climes.”
+
+The fisherman said, "Your blue mountaints are not as good as my fair waters, which offer(mang lại) me some fine things(những điều tốt đẹp) to enjoy(tận hưởng). As testimony I have hear the lyric to the tune of "The Partridge(Gà Gô) Sky"":
+
+The fairly land and water do suffice
     
 
 
