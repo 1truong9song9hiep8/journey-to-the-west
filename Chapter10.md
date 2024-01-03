@@ -9,5 +9,23 @@ The two of them were scholars (học giả) who had passed no official examimati
 "Brother Zhang" said Li Ding, "There's a great deal of truth in what you say, But your fair waters cannot match my blue mountaints".
 
 "On the contrary," said Zhang Shao, "Your blue mountaints cannot match my fair water, in testymony`(để chứng thực)` of which I offer a lyric to the tune of "Buffterfile Enamored of Flowers' that says `tôi xin đưa ra lời bài hát có nội dung sau`:""
+    
+  *In a small boat o'er(over=vượt qua) ten thousand miles of misty(sương mù-adj) waves* (Trong một con thuyền nhỏ vượt qua vạn dặm sóng mù)<br>
+  *I leanr to silent(im lặng), single sail(cánh buồm).*
+  *Circled(xoay vòng) by sound of the mermaid fish(nàng tiên cá)*<br>
+  *My mind cleansed, my care purged(thanh lọc), here lack wealth or fame*<br>
+   *Leisurely(nhàn nhã, ung dung) I pick stems(thân cây họ tre) of bulrushes(cây cói) and reeds(cây lau sậy)*
+  *Counting the seagulls(hải âu) is pleasure to be told(là niềm vui)*<br>
+  *At willowed banks and reeds bay*(tạo bờ liễu và vịnh lau)<br>
+  *My wife and son join my joyous laugh(vợ và con cùng cười vui vẻ)*<br>
+  *I sleep most soundly as wind and wave recede/ tôi ngủ ngon nhất khi gió và sóng rút đi*<br>
+   *No shame, no glory, nor any misery/Không xấu hổ, không vinh quang, cũng không khốn khổ*
+
+  Li Ding said, "Your fair waters not as good as my blue mountains. I also have as testimony a lyric poem to the tune of "Butterfile Enamored of Flowers" that say:
+  
+  *At a dense forest(rừng rậm)'s pine-seeded corner/ tại một góc rừng thông rậm rạp*<br>"
+  "I hear, wordless, the oriole<>br"
+  
+    
 
 
