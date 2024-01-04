@@ -34,7 +34,16 @@ Thaizong walked toward him, and the man, kneeling at the side of the road, said 
 
 "Who are you" said Thaizong, "and for what reason did you come to meet me?"
 
-The man said: "your lowly subject met in the Halls of Darkness the Dragon Ghost of the Jing River, who was filing suite aganst Your Majesty for having him executed after promising to save him"
+The man said: "your lowly subject met in the Halls of Darkness the Dragon Ghost of the Jing River, who was filing suite aganst Your Majesty for having him executed after promising to save him. So the great king Qinguang of the first charmber immediatly sent demon messengers to arrest you and bring you to trial before the Three Tribute. Your subject learned of this and therefore came here to received you. I did not expect to come late today, and I beg you forgive me."
+
+"what is your name": said Thaizong, "and what is your rank?"
+
+"When your lowly subject was alive" said the man, "I served on Earth for the previous emperor as "
+
+- trial (v): xử án
+- the Three Tribunes (n): Tam Quan
+- learn of this: biết được điều này
+- received: tiếp nhận
 
 
 
