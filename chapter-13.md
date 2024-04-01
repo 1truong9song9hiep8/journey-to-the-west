@@ -1,4 +1,4 @@
-# THIRTEEN (173): In [the den](#the-den-(n)) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
+# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
 ```
 The rich Tang ruler issued a decree,
 Deputing Xuanzang to seek the source of Chan.
@@ -121,5 +121,5 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
 181
 # VOCABOLARY
-#### the den (n)
+#### the den
 the den: hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường
