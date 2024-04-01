@@ -1,4 +1,4 @@
-# THIRTEEN (173): In [the den](#phần-1) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
+# THIRTEEN (173): In [the den](#The-den) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
 
 
 ## Phần 2
@@ -127,5 +127,5 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
 181
-## VOCABOLARY
-#### The dens
+# VOCABOLARY
+## The den
