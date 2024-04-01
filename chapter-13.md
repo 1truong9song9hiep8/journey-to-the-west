@@ -121,8 +121,10 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
 181
 # VOCABOLARY
-#### the den
+#### the den 
 (n): hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường.
+
+---
 #### deliverance
 (n): sự giải thoát/giải cứu.
 #### detain
