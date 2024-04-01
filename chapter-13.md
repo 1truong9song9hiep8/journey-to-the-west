@@ -1,4 +1,11 @@
-# THIRTEEN (173): In [the den](journey-to-the-west/edit/main/Vocabolary.md) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
+# THIRTEEN (173): In [the den](#phần-1) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
+
+
+## Phần 2
+
+Nội dung của phần 2
+
+[Chuyển đến Phần 1](#phần-1)
 ```
 The rich Tang ruler issued a decree,
 Deputing Xuanzang to seek the source of Chan.
@@ -27,6 +34,9 @@ Beneath the lamps the various monks discussed Buddhist doctrines and the purpose
 Some pointed out that the waters were wide and the mountains very high, others mentioned that the roads were crowded with tighers and leopards, still others maintained that the precipitous peaks were difficult to scale; and another group insisted that the vicious monsters were har to subdue. Tripitaka, however, keep his mouth shut tightly, but he pointed his fingers to his heart and nodded his head several times. Not preceiving what he meant, the various monks folder their hands and asked: "Why did the Master of the Law point to his heart and nod his head"<br>
 "When the mind is active"<br>
 Tripitaka replied:  "all kind of mara come into existence"; when the mind is extinguished, all kind of mara existinguished, This disciple has already made an important vow before Buddha in the Temple of Transformation, and he has no alternative but to fulfill it with whole heart. If I go, I shall not aside until I have readed the Western Heaven, seen Buddha, and acquired the scriptures so that the Wheel of the Law will returned to us and kingdom of our lord will be secured forever." When the various monks hear this statement, everyone congratulated and commended him, saying "A loyal and valiant master!" They praised (ca tụng) him unseasingly as they escorted(hộ tống) him to bed. Soon
+## Phần 1
+
+Nội dung của phần 1
 ```
 The bamboos trucks down the setting moon
 And the cock crowed to gather the clouds of dawn.
@@ -117,3 +127,5 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
 181
+## VOCABOLARY
+#### The dens
