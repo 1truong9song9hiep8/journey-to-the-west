@@ -1,4 +1,4 @@
-# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
+# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings deliverance(#deliverance) at Double-Fork Ridge, Boqin detains(#detain) the monk
 ```
 The rich Tang ruler issued a decree,
 Deputing Xuanzang to seek the source of Chan.
@@ -122,4 +122,8 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 181
 # VOCABOLARY
 #### the den
-the den: hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường
+(n): hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường.
+#### deliverance
+(n): sự giải thoát/giải cứu.
+#### detain
+(v): giam giữ/cầm tù
