@@ -1,11 +1,4 @@
-# THIRTEEN (173): In [the den](#The-den) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
-
-
-## Phần 2
-
-Nội dung của phần 2
-
-[Chuyển đến Phần 1](#phần-1)
+# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings deliverance at Double-Fork Ridge, Boqin detains the monk
 ```
 The rich Tang ruler issued a decree,
 Deputing Xuanzang to seek the source of Chan.
@@ -128,4 +121,4 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
 181
 # VOCABOLARY
-## The den
+##### the den
