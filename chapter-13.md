@@ -1,4 +1,4 @@
-# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings deliverance(#deliverance) at Double-Fork Ridge, Boqin detains(#detain) the monk
+# THIRTEEN (173): In [the den](#the-den) of tigers, the Gold Star brings [deliverance](#deliverance) at Double-Fork Ridge, Boqin [detains](#detain) the monk
 ```
 The rich Tang ruler issued a decree,
 Deputing Xuanzang to seek the source of Chan.
