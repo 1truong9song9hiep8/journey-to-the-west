@@ -1,27 +1,27 @@
-# THIRTEEN: In [the den](#the-den) of tigers, the Gold Star brings [deliverance](#deliverance) at Double-Fork Ridge, Boqin [detains](#detain) the monk
-```
-The rich Tang ruler issued a decree,
-Deputing Xuanzang to seek the source of Chan.
-He bent his mind to find the Dragon Den.
-With firm resolve to climd the Vulture Peak.
-Through how many states did he roam beyoud his own?
-Through cloud and hills he passed then thousand times.
-He now leaves the throne go to the West.
-He'll keep law and fairth to reach the Great Void.
-```
-We shall now tell about Tripitaka, who, on the third day before the fifteenth of the ninth month in the thirteenth year of the period Zhenguan, was send off by the Tang emperor and many officials from outside the gate of Chang'an. For the couple of days his horse trotted without seasing, and soon they reached the Temple of the Law Gate. The abbot of that temple led some five hundred monks on both sides to recive him and took him inside. As they met, tea was served, after which a vegertian meal was presented.
+# Thriteen: In [the den](#the-den) of tigers, the Gold Star brings [deliverance](#deliverance) at Double-Fork Ridge, Boqin [detains](#detain) the monk
 
-Soon after meal, dusk fell, and thus
-```
-Shadows moved to the Star River's nearing pulse;
-The moon was bright without a speck of dust
-The wild geese called from the distant sky,
-and washing flails beat form nearby homes.
-As birds returned to perch on withered tress,
-the chan monks convensed in their Sanskrit tones.
-On rush mats placed upon a sight bunk.
-They sat until haflway through the night.
-```
+*The rich Tang ruler issued a decree,<br>
+Deputing Xuanzang to seek the source of Chan.<br>
+He bent his mind to find the Dragon Den.<br>
+With firm resolve to climd the Vulture Peak.<br>
+Through how many states did he roam beyoud his own?<br>
+Through cloud and hills he passed then thousand times.<br>
+He now leaves the throne go to the West.<br>
+He'll keep law and fairth to reach the Great Void.*
+
+We shall now tell about Tripitaka, who, on the third day before the fifteenth of [the ninth month](#the-ninth-month) in the thirteenth year of [the period Zhenguan](the-period-zhenguan), was [sent off](send-off) by the Tang emperor and many officials from outside the gate of Chang'an. For a couple of days, his horse [trotted](#trot) without [ceasing](#cease), and soon they reached [the Temple of the Law Gate](#temple-of-the-law-gate). [The abbot](#the-abbot) of that temple led some five hundred monks on both sides to receive him and take him inside. As they met, tea was served, [after which](after-which) a vegetarian meal was presented.
+
+Soon after the meal, dusk fell, and thus
+
+*Shadows moved to the Star River‟s nearing pulse;<br>
+The moon was bright without a speck of dust.<br>
+The wild geese called from the distant sky,<br>
+And washing flails beat from nearby homes.<br>
+As birds returned to perch on withered trees,<br>
+The Chan monks conversed in their Sanskrit tones.<br>
+On rush mats placed upon a single bunk,<br>
+They sat until halfway through the night.**
+
 Beneath the lamps the various monks discussed Buddhist doctrines and the purpose of the seeking scriptures in the Western Heaven.
 
 Some pointed out that the waters were wide and the mountains very high, others mentioned that the roads were crowded with tighers and leopards, still others maintained that the precipitous peaks were difficult to scale; and another group insisted that the vicious monsters were har to subdue. Tripitaka, however, keep his mouth shut tightly, but he pointed his fingers to his heart and nodded his head several times. Not preceiving what he meant, the various monks folder their hands and asked: "Why did the Master of the Law point to his heart and nod his head"<br>
@@ -401,6 +401,39 @@ Tripitaka was dumbfounded, and Boqin trembled. We do not know who was crying; le
 #### the den 
 (n): hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường.
 
+---
+#### the ninth month
+tháng chín. Câu trên dịch ra là rằm tháng chín
+
+####the period Zhenguan
+năm Trinh Quán
+
+---
+####send off
+(v): gửi đi/phái đi
+
+---
+#### trot
+(v): chạy nước kiệu
+
+---
+#### cease-ing
+(v): dừng lại. nó được dùng nhiều hơn stop khi muốn nói trang trọng.
+(n): sự dừng lại
+
+---
+#### Temple of the Law Gate
+Chùa pháp môn
+
+---
+#### the abbot
+(n): trụ trì
+
+----
+#### after which
+sau đó. Sử dụng *after which* sau dấu ",", sử dụng *after that* sau dấu "."
+
+---
 #### Your poor monk
 (pronous): bần tăng
 
