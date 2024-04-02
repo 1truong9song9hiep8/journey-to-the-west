@@ -119,13 +119,79 @@ As he was nursing his horror, light began to grow in the east. The two monsters 
 "Isn't that your horse over there with the two bundles?" asked the old man pointed with his staff. Tripitake turned around and discovered that his belongings had indeed remained untouched. Somewhat relieved, he asked the old man "Aged father, what is this place? How do happen to be here?"
 
 "This called the Double-Fork Rigde, the place infested with tigers and wolves. How did you manage to get here?"
-181
+
+"At the first cow of the cock" said Tripitaka, "Your poor monk left the District of Hezou. Little did I realize that we had risen to early and we lost our way tramping through fog and dew. We came upon this Monster King so exceedingly ferocious that he captured me and my two followers. There was also a swarthy fellow called the Bear Mountain Lord and a husky fellow called the streer hermit. They arrived and addressed the Monster King as General Yin. All three of them devoured my two followers and retired only at drawn. I have no ideal where I accrued the fortune and remit that caused the aged father rescue me here"
+
+"That Steer Hermit", said the old man, "Is a wild bull spirit; The Mountain Lord, a bear spirit; and General Yin, a tiger spirit. The various orges are all demons of mountains and trees, spirits of strange beasts and wolves. Because of the primal purity of your nature, they cannot devour you. Follow me now and I shall lead you on your way."
+
+Tripitaka could not be more thankful. Fastening the bundles on the saddle and leading his horse. He followed the old man out of the fit and walked toward the main road. He tied the horse to the buhses beside the part and turned to thank the aged father. At that moment a gentle breeze swept by, and the old man rose into the air and left, riding on a white crane with a crimson head. As the wind subsided. a slip of paper fluturred down. with four lines of verse written on it:
+```
+I am the Planet Vernus on the West
+Who came to save you by special request
+Some pupils divine become to your aid.
+Blame not scriptures for handships ahead
+```
+when Tripitaka read this, he bowed toward the sky saying "I thank the gold star for seeing me through this ordeal".
+
+After that, he lead his horse again on his lonley and melancholy journey, On this ridge truly you have:
+```
+Cold and soughing, the wind of the rainforest;
+Purling and gurgling, the water of the brooklets;
+Fragrant and musky, wildflowers in bloom;
+In clutters and clumps, rough rocks piled high;
+Chattering and clattering, the apes and the deer;
+In rank and file, the musk and the fallow deer.
+Chirping and cooing, birds frequently call.
+Silent and still, not one man is in sight.
+That master
+Shivers and quivers to his anxious mind.
+This dear horse,
+Scared and nervous, can barely raise his legs
+```
+Ready to abandon his body and sacrifice his life, Tripitaka started up that rugged mountain. He journeyed for half a day, but not a single human being or dwelling was in sight. He was gnawed by hunger and disheartened by the rough road. In that desperate moment, he saw two fierce tigers growling in front of him and several huge snakes circling behind him; vicious creatures appeared on his left and strange beasts on his right. As he was all by himself, Tripitaka had little alternative but to submit himself to the will of Heaven. As if to complete his helplessness, his horse‟s back was sagging and
+
 # VOCABOLARY
 #### the den 
 (n): hang động/hang ổ, nghĩa rộng hơn **cave** chỉ cái hang thông thường.
 
+#### Your poor monk
+(pronous): bần tăng
+
+#### tramping
+(v): đi bộ trên núi đá hiểm trở nhiều ngày
+
+
+#### exceedingly
+(adv): cực kỳ, đồng nghĩa với extrermely nhưng hiếm gặp hơn
+
 ---
+#### crow
+(n): tiếng gà gáy
+
 #### deliverance
 (n): sự giải thoát/giải cứu.
+
+#### rescue
+(v): giải thoát/giải cứu
+
 #### detain
 (v): giam giữ/cầm tù
+
+#### bundle
+(n): đồ đạc được gói chặt
+
+#### saddle
+(n): yên xe/yên ngựa
+
+##### the pit
+(n): cái hố
+
+#### tie
+(n): cái cà vạt
+(v): buộc
+
+#### bush
+(n): bụi cây
+
+#### see someone through something
+giúp ai đó trong một giai đoạn khó khăn
