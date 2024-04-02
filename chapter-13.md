@@ -27,9 +27,7 @@ Beneath the lamps the various monks discussed Buddhist doctrines and the purpose
 Some pointed out that the waters were wide and the mountains very high, others mentioned that the roads were crowded with tighers and leopards, still others maintained that the precipitous peaks were difficult to scale; and another group insisted that the vicious monsters were har to subdue. Tripitaka, however, keep his mouth shut tightly, but he pointed his fingers to his heart and nodded his head several times. Not preceiving what he meant, the various monks folder their hands and asked: "Why did the Master of the Law point to his heart and nod his head"<br>
 "When the mind is active"<br>
 Tripitaka replied:  "all kind of mara come into existence"; when the mind is extinguished, all kind of mara existinguished, This disciple has already made an important vow before Buddha in the Temple of Transformation, and he has no alternative but to fulfill it with whole heart. If I go, I shall not aside until I have readed the Western Heaven, seen Buddha, and acquired the scriptures so that the Wheel of the Law will returned to us and kingdom of our lord will be secured forever." When the various monks hear this statement, everyone congratulated and commended him, saying "A loyal and valiant master!" They praised (ca tụng) him unseasingly as they escorted(hộ tống) him to bed. Soon
-## Phần 1
 
-Nội dung của phần 1
 ```
 The bamboos trucks down the setting moon
 And the cock crowed to gather the clouds of dawn.
@@ -153,11 +151,11 @@ Ready to abandon his body and sacrifice his life, Tripitaka started up that rugg
 He had on his head a cap
 Of leopard skin, spotted and artemisia white;
 He wore on his body a robe
-Of lamb‟s wool with dark silk brocade.
+Of lamb"s wool with dark silk brocade.
 Around his waist was tied a lion king belt,
 And on his feet he wore tall boots of suede.
 His eyes would bulge like those of someone hung.
-His beard curled wildly like a fierce god‟s!
+His beard curled wildly like a fierce god"s!
 A bow and poisoned arrows hung on him.
 He held a huge trident of finest steel.
 His voice like thunder appalled mountain cats,
@@ -177,8 +175,8 @@ They passed the slope, and again heard the howling of the wind, "sit there, Elde
 
 When the tiger saw him pressing near, he turned with flailing claws to spring at him, only to be met by the Guardian with uplifted trident. Tripitaka was so terrified that he lay paralyzed on the grass. Since leaving his mother's belly, when had he ever witnessed such violent and dangerous goings-on? The Guardian went after that tiger to the foot of the slope, and it was a magnificent battle between man and beast. You see
 Raging resentment, And churning whirlwind.
-In raging resentment
-The potent Guardian‟s hair pushed up his cap;
+In raging resentment The potent Guardian"s hair pushed up his cap;
+
 Like churning whirlwind
 The striped prince belched dust, displaying his might.
 This one bared its teeth and wielded its paws;
@@ -188,7 +186,7 @@ The striped tail stirred up both fog and cloud.
 This one stabbed madly at the breast of his foe;
 That one, facing him would swallow him whole.
 Stay away and you may live out your years.
-Join the fray and you‟ll meet Yama, the king!
+Join the fray and you"ll meet Yama, the king!
 You hear the roar of the striped prince
 And the harsh cries of the Guardian.
 The roar of the striped prince
@@ -201,28 +199,22 @@ Lovable was Liu the Mountain Guardian;
 Praiseworthy was this king of the wild beasts.
 So tiger and man fought, each craving life—
 A little slower, and one forfeits his soul!
-The two of them fought for about an hour, and as the paws of the tiger began to
-slow and his torso to slacken, he was downed by the Guardian‟s trident stabbing him
-through the chest. A pitiful sight it was! The points of the trident pierced the heart, and
+
+The two of them fought for about an hour, and as the paws of the tiger began to slow and his torso to slacken, he was downed by the Guardian's trident stabbing him through the chest. A pitiful sight it was! The points of the trident pierced the heart, and
 at once the ground was covered with blood.
 The Guardian then dragged the beast by the ear up the road. What a man! He
-hardly panted, nor did his face change color. He said to Tripitaka, "We‟re lucky! We‟re
-lucky! This mountain cat should be sufficient for a day‟s food for the elder."
+hardly panted, nor did his face change color. He said to Tripitaka, "We"re lucky! We"re
+lucky! This mountain cat should be sufficient for a day"s food for the elder."
 Applauding him unceasingly, Tripitaka said, "The Guardian is truly a mountain
 god!"
-"What ability do I have," said Boqin, "that I merit such acclaim? This is really
-the good fortune of the father. Let‟s go. I‟d like to skin him quickly so that I can cook
-some of his meat to entertain you."
-180
-180
-He held the trident in one hand and dragged the tiger with the other, leading the
-way while Tripitaka followed him with his horse. They walked together past the slope
-and all at once came upon a mountain village, in front of which were
+"What ability do I have," said Boqin, "that I merit such acclaim? This is really the good fortune of the father. Let"s go. I"d like to skin him quickly so that I can cook some of his meat to entertain you."
+
+He held the trident in one hand and dragged the tiger with the other, leading the way while Tripitaka followed him with his horse. They walked together past the slope and all at once came upon a mountain village, in front of which were
 Old trees soaring skyward,
 Roads filled with wild creepers.
 In countless canyons the wind was cool;
 On many ridges came strange sounds and sights.
-One path‟s wild blooms, their scent clung to one‟s body;
+One path"s wild blooms, their scent clung to one"s body;
 A few poles of bamboo, what enduring green!
 The portal of grass,
 The wattle-fenced yard—
@@ -241,20 +233,20 @@ called, "Little ones, where are you?" Out came three or four houseboys, all look
 rather unattractive and mean, who hauled the tiger inside. Boqin told them to skin it
 quickly and prepare it for the guest. He then turned around to welcome Tripitaka into
 his dwelling, and as they greeted each other, Tripitaka thanked him again for the great
-favor of saving his life. "We are fellow countrymen," said Boqin, "and there‟s little
+favor of saving his life. "We are fellow countrymen," said Boqin, "and there"s little
 need for you to thank me."
 After they had sat down and drunk tea, an old woman with someone who
 appeared to be her daughter-in-law came out to greet Tripitaka.
 "This is my mother, and this my wife," said Boqin. "Pray ask your parent to take
 the honored seat," said Tripitaka, "and let your poor monk pay his respects."
 "Father is a guest coming from great distance," said the old woman. "Please
-relax and don‟t stand on ceremony."
+relax and don"t stand on ceremony."
 "Mother," said Boqin, "he has been sent by the Tang emperor to seek scriptures
 from Buddha in the Western Heaven. He met your son just now at the ridge. Since we
 are fellow countrymen, I invited him to the house to rest his horse. Tomorrow I shall see
 him on his way." When she heard these words, the old woman was very pleased.
-"Good! Good! Good!" she said. "The timing couldn‟t be better, even if we had planned
-to invite him. For tomorrow happens to be the anniversary of your late father‟s death.
+"Good! Good! Good!" she said. "The timing couldn"t be better, even if we had planned
+to invite him. For tomorrow happens to be the anniversary of your late father"s death.
 Let us invite the elder to perform some good deeds and recite an appropriate passage of
 scripture. We shall see him off day after tomorrow."
 Although he was a tiger slayer, a so-called "Guardian of the Mountain," our Liu
@@ -266,21 +258,21 @@ be asked to stay.
 As they talked, the sky began to darken. The servants brought chairs and a table
 and set out several dishes of well-cooked tiger meat, steaming hot. Boqin invited
 Tripitaka to begin, telling him that rice would follow. "O dear!" said Tripitaka, his
-hands folded. "To tell you the truth, I have been a monk since leaving my mother‟s
+hands folded. "To tell you the truth, I have been a monk since leaving my mother"s
 womb, and I have never eaten any meat."
 Hearing this, Boqin reflected awhile. He then said, "Elder, for generations this
 humble family has never kept a vegetarian diet. We could, I suppose, find some bamboo
 shoots and wood ears and prepare some dried vegetables and bean cakes, but they
-would all be cooked with the fat of deer or tigers. Even our pots and pans are greasesoaked! What am I to do? I must ask the elder‟s pardon."
-"Don‟t fret," said Tripitaka. "Enjoy the food yourself. Even if I were not to eat
+would all be cooked with the fat of deer or tigers. Even our pots and pans are greasesoaked! What am I to do? I must ask the elder"s pardon."
+"Don"t fret," said Tripitaka. "Enjoy the food yourself. Even if I were not to eat
 for three or four days, I could bear the hunger. But I dare not break the dietary
 commandment."
 "Suppose you starve to death," said Boqin, "what then?"
 "I am indebted to the Heavenly kindness of the Guardian," said Tripitaka, "for
 saving me from the packs of tigers and wolves. Starving to death is better than being
-food for a tiger." When Boqin‟s mother heard this, she cried, "Son, stop such idle talk
+food for a tiger." When Boqin"s mother heard this, she cried, "Son, stop such idle talk
 with the elder. Let me prepare a vegetarian dish to serve him."
-"Where would you get such a dish?" said Boqin. "Never mind. I‟ll fix it," said
+"Where would you get such a dish?" said Boqin. "Never mind. I"ll fix it," said
 his mother. She asked her daughter-in-law to take down a small cooking pan and heat it
 until much of the grease had burned off. They washed and scrubbed the pan again and
 again and then put it back on the stove and boiled some water in it. Taking some elm
@@ -316,9 +308,9 @@ their gold and stands of maple hoisting their crimson. With a loud rustle, more 
 dozen fat deer and a large herd of musk deer jumped out. Calm and mild-mannered,
 they were not at all frightened at the sight of human beings. Tripitaka said, "You must
 have tamed these animals."
-"Like the people in your city of Chang‟an," said Boqin, "where the affluent store
+"Like the people in your city of Chang"an," said Boqin, "where the affluent store
 up wealth and treasures and the landlords gather rice and grain, so we hunters must keep
-some of these wild beasts to prepare against dark days. That‟s all!"
+some of these wild beasts to prepare against dark days. That"s all!"
 As they walked and conversed, it grew dark, and they returned to the house to
 rest. As soon as the members of the family, young and old, arose next morning, they
 went to prepare vegetarian food to serve to the priest, who was then asked to begin his
@@ -336,11 +328,11 @@ story of Buddha healing a bhikṣu.
 Soon it was evening again. All kinds of incense were burned together with the
 various paper horses, images of the deities, and the prayer for the deliverance of the
 deceased. The Buddhist service was thus completed, and each person retired.
-We shall now tell you about the soul of Boqin‟s father, verily a ghost redeemed
+We shall now tell you about the soul of Boqin"s father, verily a ghost redeemed
 from perdition, who came to his own house and appeared to all the members of his
 family in a dream. "It was difficult," he said, "for me to escape my bitter ordeals in the
 Region of Darkness, and for a long time I could not attain salvation. Fortunately, the
-holy monk‟s recitations have now expiated my sins. King Yama has ordered someone to
+holy monk"s recitations have now expiated my sins. King Yama has ordered someone to
 send me to the rich land of China, where I may assume my next incarnation in a noble
 family. All of you, therefore, must take care to thank the elder, and see that you are not
 negligent in any way. Now I leave you." So it is that
@@ -350,12 +342,12 @@ When the whole family awoke from the dream, the sun was already rising in the
 east. The wife of Boqin said, "Guardian, I dreamed last night that father came to the
 house. He said that it was difficult for him to escape his bitter ordeals in the Region of
 Darkness, and that for a long time he could not attain salvation. Fortunately, the holy
-monk‟s recitations have now expiated his sins, and King Yama has ordered someone to
+monk"s recitations have now expiated his sins, and King Yama has ordered someone to
 send him to the rich land of China where he may assume his next incarnation in a noble
 family. He told us to take care to thank the elder and not be negligent in any way. After
 he had finished speaking, he drifted away, despite my plea for him to stay. I woke up
 and it was all a dream!"
-"I had a dream also," said Boqin, "one exactly like yours! Let‟s get up and talk
+"I had a dream also," said Boqin, "one exactly like yours! Let"s get up and talk
 to mother about this."
 183
 183
@@ -367,10 +359,10 @@ to the redemptive work of the elder, his sins had been expiated. He is on his wa
 rich land of China, where he will assume his next incarnation in a noble family."
 Husband and wife laughed uproariously.
 Boqin said, "Your daughter-in-law and I both had this dream, and we were just
-coming to tell you. Little did we expect that mother‟s call also had to do with this
+coming to tell you. Little did we expect that mother"s call also had to do with this
 dream."
 They therefore called on every member of the family to express their gratitude
-and prepare the monk‟s horse for travel. They came bowing before the priest and said,
+and prepare the monk"s horse for travel. They came bowing before the priest and said,
 "We thank the elder for providing life and deliverance for our deceased father, for
 which we can never repay you sufficiently."
 "What has this poor monk accomplished," said Tripitaka, "that merits such
@@ -383,7 +375,7 @@ him earnestly. He only said, "If, in compassion, you can escort me on the first 
 my way, I shall ever be grateful for such kindness."
 Boqin and his mother and wife had little alternative but hastily to prepare some
 biscuits from unrefined flour, which Tripitaka was glad to accept. Boqin was told to
-escort him as far as possible. Obeying his mother‟s bidding, the Guardian also ordered
+escort him as far as possible. Obeying his mother"s bidding, the Guardian also ordered
 several houseboys to join them, each bringing hunting equipment and weapons. They
 walked to the main road, and there seemed to be no end to the scenic splendor of the
 mountains and peaks.
