@@ -1,4 +1,4 @@
-# Fourteen: Mind Monkey return to right, the six robbers [vanish from sight](#disappear/vanish-from-sight).
+# Fourteen: Mind Monkey return to right, the six robbers [vanish from sight](#vanish-from-sight).
 *Mind is the Buddha and the Buddha is Mind;<br>
 Both Mind and Buddha are important things.<br>
 If you perceive there‟s neither Mind nor Thing,<br> 
@@ -30,8 +30,8 @@ we were telling about Tripitaka and Boqin, who, in [fear and alarm](#fear-and-al
 Tripitaka has to agree and led his horse down the mountain, they has traveled only a few miles when they came upon the stone box in which where was ineeded a monkey who, with his head [sticking out](#strick-out), was waving his hands [wildly](#wildly) and crying, "Master, why have you take to long to take here? Welcome, Welcome! Get me out, I will protect you on your way to the Western Heaven."
 
 # Vocabolary
-#### disappear/vanish from sight
-biến mất khỏi tầm mắt
+#### vanish from sight
+biến mất khỏi tầm mắt. có thể dùng với disapear/vanish from sight.
 
 ---
 #### fear and alarm
