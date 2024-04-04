@@ -104,6 +104,24 @@ He took the knife and cut it again into two pieces, he put one of them away and 
 
 He gave his iron rod a squeeze and it change back into a tiny needle, which he stored in his ear. Throwing the luguage on his back, he asked his master to mount the horse. As they set off, the monk asked him "Wukong, how is it the iron rod you used to slay the tiger disappeared".
 
+"Master", said the Pilgirm laughing, "you have no ideal what that rob of mine realy is. It was acquired originally from Dragond Palace in the East Ocean, It's called the Precious Divine Iron for Guaring the Heavenly River, and another name of it is the Compliant Golden-Hooped Rod. At the time when I resolted against Heaven, I depended on it a great deal; for it could change into any shape or form, great or small, according to my wish, Just now i had it changed into a tiny embroidery needle, and it's stored that way in my ear. When I need it, I'll take it out" Secretly pleased by what he heard, Tripitaka asked another question:
+
+"Why did the tiger become completely motionless when it saw you, How do you explain the fact that is simply let you hit it?"
+
+"To tell you the truth", said Wukong, "even a dragond, let alone this tiger, would behave itself if it had seen me! I, old Monkey, posess a ability to subdue dragonds and tame tigers, and power to overturn rivers and stir up oceans, I can look at the person's countenance and discern his character; I can listen merely the sounds and discover the truth. If I want tobe big, I can fill the universe; if I want to be small, I can smaller than a piece of hair, In sum, I have boundless ways of transformation and incalculable means of becoming invisible. What's so strange, then, about my skining a tiger? Wait still we come to some real difficulties, you'll see my talent then!" When Tripitaka heard these words, he was more relived than ever and urged his horse forward. So master and disciple, the two of them, chatted as they journeyed, and soon the sun sank in west, You see:
+
+*Soft glow of the fading twilight.
+And distant clouds slowly returning
+On over hill swells the chorus of birds.
+Flocking to shelter in the woods
+The wild beasts in couples and pairs
+In pack and groups they trek homeward.
+The new moon, hooklike, breaks the spreading gloom.
+With ten thousand stars luminous.
+*
+
+Pilgrim said, "Master, let's move along, for it's getting late. There are dense clumps of trees over there, and I suppose there must be a house or village too. Let's hurry over there and ask for lodging." Urging his horse foward. Tripitaka went straight up to a house and dismounted. Pilgrim threw ot the bag and went to the door, crying "Open, Open"
+
 " Master"
 ww
 # Vocabolary
