@@ -86,5 +86,8 @@ As the monkey has a rather low tolerance for any kind of provocation, this singl
 "Never mind where I come from," said Pilgrim, "Just return the horse and I'll spare your life."
 
 "I've sallowed your horse into my stomach", said the dragond,  "so how am I to throw it up? What are you going to do if I can't return it to you?" Pilgrim said, "If you don't give me back the horse, just watch for this rod. Only when your life becomes a payment for my horse will there be an end of this matter"
-201
+
+The two of them again waged a bitter struggle below the mountain ridge. After a few rounds, however, the little dragon just could not hold out any longer; shaking his body, he changed himself into a tiny water snake and wriggled into the marshes.
+
+
 
