@@ -87,7 +87,11 @@ As the monkey has a rather low tolerance for any kind of provocation, this singl
 
 "I've sallowed your horse into my stomach", said the dragond,  "so how am I to throw it up? What are you going to do if I can't return it to you?" Pilgrim said, "If you don't give me back the horse, just watch for this rod. Only when your life becomes a payment for my horse will there be an end of this matter"
 
-The two of them again waged a bitter struggle below the mountain ridge. After a few rounds, however, the little dragon just could not hold out any longer; shaking his body, he changed himself into a tiny water snake and wriggled into the marshes.
+The two of them again waged a bitter struggle below the mountain ridge. After a few rounds, however, the little dragon just could not hold out any longer; shaking his body, he changed himself into a tiny water snake and wriggled into the marshes. The monkey king came rushing up with his rod and parted the grass to look for the snake, but there was not a trace of it. He was so exaperated that the spirit of the Three Worms in his body explorded a smoke began began appear from his seven aperture. He deceited a spell begining with the letter om and summonted the local spirit and the mountain god of this region. the two of them knelt before, saying "The local spirit and mountain god have come to see you."
+
+Stick out your shanks, said Pilgrim, "and I will greet each of you five strokes of my rob just to relive my feeling."
+
+"Great Sage" they pleaded, ""
 
 
 
