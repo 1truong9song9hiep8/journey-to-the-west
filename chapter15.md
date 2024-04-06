@@ -91,7 +91,15 @@ The two of them again waged a bitter struggle below the mountain ridge. After a 
 
 Stick out your shanks, said Pilgrim, "and I will greet each of you five strokes of my rob just to relive my feeling."
 
-"Great Sage" they pleaded, ""
+"Great Sage" they pleaded, "please be more lenient and allow your humble subjects to tell you something."
+
+"What have you got to say", said Pilgrim, "The Great Sage has been in captivity a long time" said the two dieties, "and we had no knowleged of when you were released. That's why we have not in here to receive you, and we beg you to pardon us."
+
+"All right", said Pilgrim, "I won't hit you. But let me ask you something, where did that mounstous dragond in the Eagle Grief Stream come form, and why did he devour my master's white horse?"
+
+"We have never know the Great Sage to have a master" the two deities said, "for you have always been a first-rank primordial immortal who submits neither to Heaven nor to Earth. What do you mean by your master' horse?" Pilgrim said, "Of course you didn't know about this. Because of my contemputous behavior toward the Heaven, I had to suffer for this five hundred years. I was convented by the kindly persurea of Bohshivata Guanyin, who had the true monk from the Tang court resue me, As his dispile, I was to follow him to the Western Heaven to seek scriptures from Buddha, we passed throught this place, and my master's white horse was lost."
+
+207
 
 
 
