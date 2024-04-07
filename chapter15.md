@@ -103,3 +103,6 @@ Stick out your shanks, said Pilgrim, "and I will greet each of you five strokes 
 
 
 
+start 208
+need for the Great Sage to get angrying trying to look for him. If you want to capture this creature. All you need do is to ask Guanshiyin to come here, then he'll certanly surrender. "When Pilgrim heard this, he called the mountain god and local spirit to go with him to see Tripitaka to give an account of what had happened"
+
