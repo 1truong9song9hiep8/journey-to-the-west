@@ -128,5 +128,25 @@ They moved Xuanzang to mend his ways anew.
 By blocking his path at Eagle Grief Stream,
 A dragon-prince in horse-form returns to the Real.
 
-The Bodshisattva and the Guardian have soon arrived at the Serpent Coil Mountain. They stopped the hallowed clouds in midair and saw Pilgrim Sun down below, shouting abuses at the bank of the stream, the Bodshisattva asked the Guardian fetch him. Lowering his clouds. the Guardian went past Tripitaka and headed straight for the edge.
+The Bodshisattva and the Guardian have soon arrived at the Serpent Coil Mountain. They stopped the hallowed clouds in midair and saw Pilgrim Sun down below, shouting abuses at the bank of the stream, the Bodshisattva asked the Guardian fetch him. Lowering his clouds. the Guardian went past Tripitaka and headed straight for the edge of stream, saying to Pilgrim, "Bodhisattva has arrived" when Pilgrim heared this, he jumped quickly into the air and yelled at her:
+
+"You, so-called Teacher of Seven Buddhas and the Founder of the Fair of Mercy! Why did you have used your tricks to harm me?"
+
+"You impudent stableman, ignorant red-buttock!" said the Bodhisattva, "I went to considerable effort to find the scripture pilgrim, whom I careful instructed to save your life. instead of thanking me, you are finding fault with me?"
+
+"You saved me all right!" said Pilgrim,  "If you truly wanted to deliver me, you should have allowed me to have a little fun with no strings attached. When you meet me another day above the ocean, you could have chastened me with a few words, telling me to serve the Tang Monk with deligece, and that would have been enogh. Why did you have to give him a flower cap, and have him deceive me into wearing it so that I would suffer? Now the fillet has taken root on old Monkey's head. And you even taught him this so-called "Tight-Fillter Spell"  which recited again and again, causing endless pain in my head! You haven't harm me, indeed?"
+
+The Bodhisattva laughed and said, "O, monkey! You are neither attentive to admotion nor willing to seek the fruit of truth. If you are not retrained like this, you'll probaly mock the authority of Heaven again without regard for good or ill. If you create troubles as you did before, who will be able to control you? It's only through this bit of adverity that you will be willing to enter our gate of Yoga."
+
+"All right" said Pilgrim, "I'll consider the matter my hard luck. By why did you take that condemened dragon and send him here so that be could become a spirit and swallow my master's horse? It's your fault, you know, if you allow an eviloer to perpetrate his villaineise some more."
+
+"I went personally to plead with the Jade Emperor", said the Bubhisattva, "the have the dragon stationed here so that he could served as a means of transportation for the scripture pilgrim. those mortal horses from the land of east, do you think that they could walk through ten thousand waters and a thousand hills? How could they possily hope to reach the spirit Mountain, the land of Buddha? Only a dragon-horse could make that journey!"
+
+"But right now he is so terribly afraid of me" said Pilgrim, "that he fesure to come out of his hiding place, What can we do?"
+
+The Bodhisattva said to the Guardian, "Go to the edge of stream and say, Come out, Third Prince Jade Dragon of the Dragon King Aorun. The Bodhisattve from South Sea is here", He'll come out then.
+
+The Guardian went once to the edge of the stream and called out twice. Churning the water and leaping across the waves, the little dragond appeared and changed at once into the form at a man. He stepped on the clouds and rose up into the air, saluting the Bodhisattva, he said "I thank the Bodhisattva again for saving my life. I've waited here a long time, but I've never heared no new of the scripture pilgrim," Pointing to Pilgrim, the Bodhisattva said, “Isn‟t he the eldest disciple of the scripture pilgrim?” When he saw him, the little dragon said, “Bodhisattva, he‟s my adversary. I was hungry yesterday and ate his horse. We fought over that, but he took advantage of his superior strength and defeated me; in fact, he so abused me that I dared not show myself again. But he has never mentioned a word about scripture seeking.” 
+
+210
 
