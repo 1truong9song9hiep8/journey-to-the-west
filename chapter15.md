@@ -104,5 +104,29 @@ Stick out your shanks, said Pilgrim, "and I will greet each of you five strokes 
 
 
 start 208
-need for the Great Sage to get angrying trying to look for him. If you want to capture this creature. All you need do is to ask Guanshiyin to come here, then he'll certanly surrender. "When Pilgrim heard this, he called the mountain god and local spirit to go with him to see Tripitaka to give an account of what had happened"
+need for the Great Sage to get angrying trying to look for him. If you want to capture this creature. All you need do is to ask Guanshiyin to come here, then he'll certanly surrender. "When Pilgrim heard this, he called the mountain god and local spirit to go with him to see Tripitaka to give an account of what had happened. "If you need to send for the Bodshisattva" said Tripitaka, "when will you able return? How can this poor monk can endure with cold and hunger?"
+
+He had hardly finished speaking when the Golden-Header Guardian called out from midair, "Great Sage, you needn't leave. Your humble subject will go fetch the Bodshisattva." Pilgrim very pleased, shouting. "Thanks for taking all that troubles! Go quickly!"
+
+The Guardian mounted the clouds swiftly and headed straight for South Sea; Pilgrim asked the mountain god and the local spirit to protect his master and the Day Seitinal to find some vegetarian food, when he himself went back to patrol the stream, and we shall say no more of that.
+
+We now tell about the Golden-Headed Guardian, who mounted the clounds and soon arrived at South Sea. Descending from the auspicious light, he went straight for the purple bamboo grove of the Potalaka Mountain when he asked the various deities in golden armor and Moksa to announce his arrival. The Bodshisattav said, "What have you come from?"
+
+"The Tang monk lost his horse at the Eagle Grief Stream of the Serpent Coil Mountain" said the Guardian, "and the Great Sage Sun was placed in a terrible dilemman. He questined the local deities, who claimed that a dragond send by the Bodshisattva to that stream had eaten it. The Great Sage, therefore, send me to request Bodshisattva to go subdue that cursed dragon, so that he might get back his horse."
+
+Hearding this, the Bodshisattva said, "That creature was originally the son of Aorun of the Western Ocean. Because in his carelessness he set fire to the palace and destroyed the luminous pearls hanging there, his father accused him at subversion, and he was condemented to die by the Heavenly Tribunal." It was I who personally sought pardon from the Jade Emperor for him, so that he might serve as a means of transportation for the Tang Monk. I can't undersand how he could swallowd the monk's horse instead. But if that is what happened. I'll have to get over there myself.
+
+The Budshisattva left her lotus platform and get out of the divine cave. Mounting the auspicious luminosity with the Guardian, she crossed the South Sea. We
+have a testimonial poem that says:
+
+Buddha proclaimed the Tripitaka Supreme
+Which the Goddess declared throughout Chang‟an:
+Those great, wondrous truths could reach Heaven and Earth;
+Those wise, true words could save the spirits damned.
+They caused Gold Cicada to cast again his shell.
+They moved Xuanzang to mend his ways anew.
+By blocking his path at Eagle Grief Stream,
+A dragon-prince in horse-form returns to the Real.
+
+The Bodshisattva and the Guardian have soon arrived at the Serpent Coil Mountain. They stopped the hallowed clouds in midair and saw Pilgrim Sun down below, shouting abuses at the bank of the stream, the Bodshisattva asked the Guardian fetch him. Lowering his clouds. the Guardian went past Tripitaka and headed straight for the edge.
 
