@@ -31,7 +31,7 @@ Master and dispile were looking at the stream, when there was a lound splash in 
 
 He wishtled once and leaped up into the air. Shading his fiery eye and diamond pupils with his hand, he peered in all four direction, but there was not the slighest trace of the horse. Dropping down from the clouds, he made his report, saying "Master, our horse must have been eaten by that dragon. It's nowhere to be seen."
 
-"Disiple," said Tripitaka, "how big a mouth does creature have that he can swallow a horse, harness and all? It must have been frightened away instead, propaly still running lost somewhere in the valley. Please take another look", Pilgrim said, “You really have no conception of my ability. This pair of eyes of mine in daylight can discern good and evil within a thousand miles; at that distance, I can even see a dragonfly when it spreads its wings. How can I possibly miss something as big as a horse?"
+"Disiple," said Tripitaka, "how big a mouth does creature have that he can swallow a horse, harness and all? It must have been frightened away instead, propaly still running lost somewhere in the valley. Please take another look", Pilgrim said, "You really have no conception of my ability. This pair of eyes of mine in daylight can discern good and evil within a thousand miles; at that distance, I can even see a dragonfly when it spreads its wings. How can I possibly miss something as big as a horse?"
 
 "If it has been eaten," Tripitaka said, "How am I to proceed? Pity me, How can I walk through those thousand hills and ten thousand waters.
 
@@ -39,7 +39,7 @@ As he spoke, tears began to fall like rain, when Pilgrim saw him crying he becam
 
 "Master stop behaving like a namby-pamby! Sit here! Just sit here! Let old monkey find that creature and ask him to give us back our horse. That'll be the and of matter."
 
-Clutching at him, Tripitaka said, "Disciple, where do you have to go to find him? Wouldn‟t I be hurt if he should appear from somewhere after you are gone? How would it be then if both man and horse should perish?"
+Clutching at him, Tripitaka said, "Disciple, where do you have to go to find him? Wouldn"t I be hurt if he should appear from somewhere after you are gone? How would it be then if both man and horse should perish?"
 
 At these words, Pilgrim became even more enranged, "You're weakling! Truly a weakling," he thundered, "Yon want a horse to ride on, and yet you won't let me go. You want to sit here and grow old, watching our bags?"
 
@@ -120,7 +120,7 @@ The Budshisattva left her lotus platform and get out of the divine cave. Mountin
 have a testimonial poem that says:
 
 Buddha proclaimed the Tripitaka Supreme
-Which the Goddess declared throughout Chang‟an:
+Which the Goddess declared throughout Chang"an:
 Those great, wondrous truths could reach Heaven and Earth;
 Those wise, true words could save the spirits damned.
 They caused Gold Cicada to cast again his shell.
@@ -134,11 +134,11 @@ The Bodshisattva and the Guardian have soon arrived at the Serpent Coil Mountain
 
 "You impudent stableman, ignorant red-buttock!" said the Bodhisattva, "I went to considerable effort to find the scripture pilgrim, whom I careful instructed to save your life. instead of thanking me, you are finding fault with me?"
 
-"You saved me all right!" said Pilgrim,  "If you truly wanted to deliver me, you should have allowed me to have a little fun with no strings attached. When you meet me another day above the ocean, you could have chastened me with a few words, telling me to serve the Tang Monk with deligece, and that would have been enogh. Why did you have to give him a flower cap, and have him deceive me into wearing it so that I would suffer? Now the fillet has taken root on old Monkey's head. And you even taught him this so-called "Tight-Fillter Spell"  which recited again and again, causing endless pain in my head! You haven't harm me, indeed?"
+"You saved me all right!" said Pilgrim. "If you truly wanted to deliver me, you should have allowed me to have a little fun with no strings attached. When you met me the other day above the ocean, you could have chastened me with a few words, telling me to serve the Tang Monk with diligence, and that would have been enough. Why did you have to give him a flower cap, and have him deceive me into wearing it so that I would suffer? Now the fillet has taken root on old Monkey"s head. And you even taught him this so-called „Tight-Fillet Spell," which he recites again and again, causing endless pain in my head! You haven"t harmed me, indeed!"
 
-The Bodhisattva laughed and said, "O, monkey! You are neither attentive to admotion nor willing to seek the fruit of truth. If you are not retrained like this, you'll probaly mock the authority of Heaven again without regard for good or ill. If you create troubles as you did before, who will be able to control you? It's only through this bit of adverity that you will be willing to enter our gate of Yoga."
+The Bodhisattva laughed and said, "Oh, monkey! You are neither attentive to admotion nor willing to seek the fruit of truth. If you are not retrained like this, you'll probaly mock the authority of Heaven again without regard for good or ill. If you create troubles as you did before, who will be able to control you? It's only through this bit of adverity that you will be willing to enter our gate of Yoga."
 
-"All right" said Pilgrim, "I'll consider the matter my hard luck. By why did you take that condemened dragon and send him here so that be could become a spirit and swallow my master's horse? It's your fault, you know, if you allow an eviloer to perpetrate his villaineise some more."
+"All right" said Pilgrim, "I'll consider the matter my hard luck. By why did you take that condemned dragon and send him here so that be could become a spirit and swallow my master's horse? It's your fault, you know, if you allow an evildoer to perpetrate his villaineise some more."
 
 "I went personally to plead with the Jade Emperor", said the Bubhisattva, "the have the dragon stationed here so that he could served as a means of transportation for the scripture pilgrim. those mortal horses from the land of east, do you think that they could walk through ten thousand waters and a thousand hills? How could they possily hope to reach the spirit Mountain, the land of Buddha? Only a dragon-horse could make that journey!"
 
@@ -146,7 +146,9 @@ The Bodhisattva laughed and said, "O, monkey! You are neither attentive to admot
 
 The Bodhisattva said to the Guardian, "Go to the edge of stream and say, Come out, Third Prince Jade Dragon of the Dragon King Aorun. The Bodhisattve from South Sea is here", He'll come out then.
 
-The Guardian went once to the edge of the stream and called out twice. Churning the water and leaping across the waves, the little dragond appeared and changed at once into the form at a man. He stepped on the clouds and rose up into the air, saluting the Bodhisattva, he said "I thank the Bodhisattva again for saving my life. I've waited here a long time, but I've never heared no new of the scripture pilgrim," Pointing to Pilgrim, the Bodhisattva said, “Isn‟t he the eldest disciple of the scripture pilgrim?” When he saw him, the little dragon said, “Bodhisattva, he‟s my adversary. I was hungry yesterday and ate his horse. We fought over that, but he took advantage of his superior strength and defeated me; in fact, he so abused me that I dared not show myself again. But he has never mentioned a word about scripture seeking.” 
+The Guardian went once to the edge of the stream and called out twice. Churning the water and leaping across the waves, the little dragond appeared and changed at once into the form at a man. He stepped on the clouds and rose up into the air, saluting the Bodhisattva, he said "I thank the Bodhisattva again for saving my life. I've waited here a long time, but I've never heared no new of the scripture pilgrim," Pointing to Pilgrim, the Bodhisattva said, "Isn't he the eldest disciple of the scripture pilgrim?" When he saw him, the little dragon said, "Bodhisattva, he's my adversary. I was hungry yesterday and ate his horse. We fought over that, but he took advantage of his superior strength and defeated me; in fact, he so abused me that I dared not show myself again. But he has never mentioned a word about scripture seeking." 
 
-210
+"You didn't brother to ask my name," said Pilgrim, "How did you expect me to tell you anything?"
+
+The little dragond said, "Didn't I ask you,"
 
