@@ -27,5 +27,12 @@ On the rocks wild apes madly play.
 Augustly the branches spread their luscious green,
 Basking their splendor in bright mountain mist.*
 
-Pilgrim was enjoying the scenery when suddenly he heard voices coming from beyond a lovely grass meadow. With light, stealthy steps, he inched forward and his himself beneath a cliff to have a beep. He saw three monsters sitting on the ground, a swarthy fellow in the middle, a Daoist to the left, and a white-robed scholar to the right. They were in the midst of an animated conversation, discussing how to establish the tripod and the oven, how to knead the cinnabar and refine the mercury, the topics of
+Pilgrim was enjoying the scenery when suddenly he heard voices coming from beyond a lovely grass meadow. With light, stealthy steps, he inched forward and his himself beneath a cliff to have a beep. He saw three monsters sitting on the ground, a swarthy fellow in the middle, a Daoist to the left, and a white-robed scholar to the right. They were in the midst of an animated conversation, discussing how to establish the tripod and the oven, how to knead the cinnabar and refine the mercury, the topics of white snow and yellow prount and the esoteric doctrines of heterodox Daosim, as they were speaking, the swarthy fellow said, laughing "The day after tomorow will be the date of my mother's labor. Will you two genlement pay me a visit?"
+
+"Every year we celebrate the Great King's birthday", said the white-robed scholar, "How could we think of not comming this year"
+
+"Last night I came upon a treasure", said the swarthy fellow, "which maybe called a brocaded robe of Buddha. It's most attractive thing, and I think I'm going use it to enhance my birthday, I plant to give a large banquet, starting tomorow, and to invite all our Dao friends of various moutains to celebrate this garment, we shall call this party the Fesival of the Buddha Robe. How about that?"
+
+Maverlous, Maverlous! said the Daoist
+
 
