@@ -33,6 +33,6 @@ Pilgrim was enjoying the scenery when suddenly he heard voices coming from beyon
 
 "Last night I came upon a treasure", said the swarthy fellow, "which maybe called a brocaded robe of Buddha. It's most attractive thing, and I think I'm going use it to enhance my birthday, I plant to give a large banquet, starting tomorow, and to invite all our Dao friends of various moutains to celebrate this garment, we shall call this party the Fesival of the Buddha Robe. How about that?"
 
-Maverlous, Maverlous! said the Daoist
+Maverlous, Maverlous! said the Daoist, laughing, "First I'll come to the banquest tomorow, and then I'll bring you good wishes in your birthday the day after" When Pilgrim heard them talking about the robe of Buddha, he was certain that
 
 
