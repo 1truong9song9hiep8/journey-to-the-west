@@ -54,6 +54,37 @@ Pilgrim went to the door and found that the two stone doors were tightly closed.
 
 A little demon who stood guard at the door came out and asked, "Who are you, that you dare beat at our immortal cave?" 
 
+"You Damnable beast!" Scolded Pilgrim, "What sort of a place is it, that you there assume the title of 'Immortal'? Is the word 'Immortal' for you to use? Hurry inside and tell the swarthy fellow to bring out your venerable father's cassock at once. Then I may spare the lifes of the whole nest of you"
+
+The litle demon ran swiftly inside and reported:
+
+"Great King! You won't have a Festival of the Buddha Robe"
+
+"There's a monk with hairy face and a thunder-god mouth outside demanding the cassock."
+
+That swarthy fellow, after being chased by the Pilgrim from the grass meadow, had just managed to get the cave. He had not even been able sit down when he again heard this announcement, and he thought to himself.
+
+"I wonder where this fellow came from, so arrogant that he dared show up making demand of my door"
+
+He asked for his armor, and, after putting it on, he walked outside holding a lance with black tassles, Pilgrim stood on one side of the gate, holding his iron rob and glaring. The monster indeed cut a formidable figure:
+
+A bowl-like helmet of dark burnished steel;
+A black-gold cuirass that shone most bright.
+A black silk robe with wide wind-bagging sleeves,
+And dark green sashes with long, long tassels.
+He held in his hands a black-tasseled lance.
+He wore on his feet two black-leather boots.
+His eyes‟ golden pupils like lightning flashed.
+He was thus in this mountain the Black Wind King.
+
+"This fellow" Pilgrim said, smilling to himself, "looks exacly like a kiln or a coal miner. He must scrub charcoal here for a living! How did he get to be black all over?"
+
+The monster called out in a loud voice, "What kind of a monk are you that you dare to be so impudent aroud here?" Rushing up to him with his iron rob, Pilgrim roared, "No ilde converstation! Return the cassock of you revenable grandfather at once!"
+
+"What monastregy are you from?, bonze?" asked the monster, "and where did you lose your cassock that you dare show up at my place and demand its return"
+
+"My cassock" said Pilgrim, "was stored in the back room of the Guanyin Hall due north of here. Because of the fire there, you committed robbery by taking advantage of the confusion; after making off with the garment, you even wanted to start a Festival of the Buddha Robe to celebrate your birthday. Do you deny this? Give it back to me quickly, and I‟ll spare your life. If you but mutter half a „no,‟ I‟ll overturn the Black Wind Mountain and level the Black Wind Cave.
+Your whole cave of demons will be pulverized!” When the monster heard these words, he laughed scornfully and said, “You audacious creature! You yourself set the fire last night, for you were the one who summoned the wind on top of the roof. I took the cassock all right, but what are you going to do about it? Where do you come from, and what is your name? What ability do you have, that you dare mouth such reckless words?” Pilgrim said, “So you don‟t recognize your venerable grandfather! He is the"
 
 
 
