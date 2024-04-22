@@ -33,6 +33,27 @@ Pilgrim was enjoying the scenery when suddenly he heard voices coming from beyon
 
 "Last night I came upon a treasure", said the swarthy fellow, "which maybe called a brocaded robe of Buddha. It's most attractive thing, and I think I'm going use it to enhance my birthday, I plant to give a large banquet, starting tomorow, and to invite all our Dao friends of various moutains to celebrate this garment, we shall call this party the Fesival of the Buddha Robe. How about that?"
 
-Maverlous, Maverlous! said the Daoist, laughing, "First I'll come to the banquest tomorow, and then I'll bring you good wishes in your birthday the day after" When Pilgrim heard them talking about the robe of Buddha, he was certain that
+Maverlous, Maverlous! said the Daoist, laughing, "First I'll come to the banquest tomorow, and then I'll bring you good wishes in your birthday the day after" When Pilgrim heard them talking about the robe of Buddha, he was certain that they were referring to his own treasure. Unable to suppress his anger, he leaped clear of his hiding place and hight the golden-hooped rod with both hand, shouting, "You larcenous monsters, you stole my cassock. What the Festival of the Buddha Robe do you think you are going to have? Give it back to me at once, and don't try to run away!" Wielding his rob, he struck at their heads. In panic, the swarthy fellow feld by riding the wind, and the Daoist escaped by mounting the cloud. The white-robed scholar, however, was killed by one strocke of the rod, and he turned out to be the spirit of a white-spotted snake when Pilgirm pulled his body over for closer examination. He picked up the corpse again and broke it into a serveral pieses before proceeding deep into the mountain to look for the swarthy fellow, Passing pointed peaks and rugged ridges, he found himself in front of a hanging cliff in a cave dwelling below it you see:
+*Mist and smoke abundant,
+Cypress and pine umbrageous.
+Mist and smoke abundant, their hues surround the door;
+Cypress and pine umbrageous, their green entwines the gate.
+Flat, dried wood supports a bridge.
+Wisterias coil round the ridge.
+Birds carrying red petals reach the cloudy gorge.
+And deer tread on florets to comb the rocky flats.
+Before that door
+The flowers bloom with the season
+As the wind wafts their fragrance.
+Atop the dyke-shading willows orioles sing;
+O‟er the bank‟s sweet peaches butterflies flit.
+This rustic spot, though no cause for much praise,
+Still rivals the3 beauty of Mount Penglai.*
+
+Pilgrim went to the door and found that the two stone doors were tightly closed. On top of the door was a stone tablet, on which was plainly written a large letters, "Black Wind Mountain, Black Wind Cave".
+
+A little demon who stood guard at the door came out and asked, "Who are you, that you dare beat at our immortal cave?" 
+
+
 
 
